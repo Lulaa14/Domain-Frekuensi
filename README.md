@@ -1,0 +1,2 @@
+# Domain-Frekuensi
+F55120112_MUH FARIED MUCHTAR_C_UAS PCD
